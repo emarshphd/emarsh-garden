@@ -1,0 +1,1 @@
+"[[The market]] is a graph of rich people's feelings." --don't remember where this came from. Saw it on facebook awhile ago. 
